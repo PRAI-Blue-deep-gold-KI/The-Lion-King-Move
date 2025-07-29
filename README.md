@@ -1,2 +1,2 @@
 # The-Lion-King-Move
-InterBOxSpiderWeb.NET PRVPNRFAI.py 2025 - 2029
+Move of the Game "The $LION Kingdom"
